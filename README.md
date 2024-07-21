@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @100baggers
 - 👀 This is my journey on finding & investing in 100 baggers.
-- ✨ I am a billionaire.
+- ✨ I am a billionaire. Here I am sharing how I have become a billionaire from 0.
 
 
 
